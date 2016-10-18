@@ -2,31 +2,31 @@
 
 [![N|Solid](http://laglace.dk/wp-content/uploads/2015/09/Lagkage_sport_1.jpg)](https://da.wikipedia.org/wiki/Sportskage)
 #Historie
-Sportskage er en lagkage, oprindelig fra konditoriet La Glace i København. Kagen består af en makronbund med en stor mængde nougatblandet flødeskum ovenpå, og er pyntet med vandbakkelser (profiteroles).
+Sportskage er en lagkage, oprindelig fra konditoriet La Glace i KÃ¸benhavn. Kagen bestÃ¥r af en makronbund med en stor mÃ¦ngde nougatblandet flÃ¸deskum ovenpÃ¥, og er pyntet med vandbakkelser (profiteroles).
 
-Kagen blev fremstillet første gang som rekvisit til Otto Benzons satiriske anti-Estrupske teaterstykke Sportsmænd,[1] der havde premiere den 18. november 1891 på Folketeatret i Nørregade.[2]
+Kagen blev fremstillet fÃ¸rste gang som rekvisit til Otto Benzons satiriske anti-Estrupske teaterstykke SportsmÃ¦nd,[1] der havde premiere den 18. november 1891 pÃ¥ Folketeatret i NÃ¸rregade.[2]
 
 # Ingredienser
 ---
 ### Udstyr
-     -Stor sprøjtepose
-    - Gerne er silikonemåtte, men ikke et must.
-    - Nougatine
-    - 50 g hasselnøddekerner
-    - 150 sukker
-    - Markronbund
-    - 250 g marcipan
-    - 370 g sukker
-    - 4 æggehvider
-### Profiterolles
-    - 100 g smør
-    - 2 dl vand
-    - 125 g mel
-    - et nip salt
-    - 3 store æg
-    - 1 knsp bagepulver
-    - Fløde fløde fløde
-    - Konstruktionen
+     -KÃ¦mpestor sprÃ¸jtepose
+    - En silikonemÃ¥tte er et must.
+    - MEGET Nougatine
+    - 100 g hasselnÃ¸ddekerner
+    - 300 g sukker
+    - Mange makronbunde
+    - 500 g marcipan
+    - 740 g sukker
+    - 8 Ã¦ggehvider
+### Profiteroles
+    - 200 g smÃ¸r
+    - 4 dl vand
+    - 250 g mel
+    - to nip salt
+    - 6 store Ã¦g
+    - 2 knsp bagepulver
+    - FlÃ¸de flÃ¸de flÃ¸de flÃ¸de flÃ¸de flÃ¸de flÃ¸de
+    - Konstruktionerne
 ---
 #Tilberedning
 
