@@ -1,1 +1,1 @@
-# cp-jworkshops
+# cp-workshops
